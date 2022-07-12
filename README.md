@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **python, javascript,typescript**
 
-- 📫 How to reach me **bunyamincan.dag@outlook.com**
+- 📫 How to reach me **chaudharyramandahiya@gmail.com**
 
 - ⚡ Fun fact **I am good at something :)**
 
